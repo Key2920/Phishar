@@ -1,2 +1,0 @@
-# Phishar
-CRAKER
